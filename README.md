@@ -1,3 +1,3 @@
 # hello-world
 Just do it
-Oh man, it is a beautiful time, she is just beautiful...
+Remember red, hope is a good thing, maybe the best of things, and no good thing ever dies.
